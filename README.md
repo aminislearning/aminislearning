@@ -1,0 +1,3 @@
+Hi! Myself MD. Aminul Islam. Don't know wtf this apps or website(github) is for & how to use it!...
+
+But soon I will learn & have mastery on this. Till then lest hope for the best for me <3
